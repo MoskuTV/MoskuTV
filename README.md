@@ -8,6 +8,6 @@
 - 💬 Ask me about anything and I might have the answer.
 - 📫 How to reach me: coming soon
 - 😄 Pronouns: he
-- ⚡ Fun fact: ![image](https://user-images.githubusercontent.com/73259540/179160873-0612a097-b3c0-4303-9723-73daf05abb20.png)
+- ⚡ Fun fact: XD
 
 
